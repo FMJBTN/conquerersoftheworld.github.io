@@ -1,2 +1,2 @@
 # conquerersoftheworld.github.io
-Conquer the world with your friends or online!
+You are not allowed to use this
